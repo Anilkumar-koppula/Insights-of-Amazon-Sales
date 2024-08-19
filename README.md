@@ -1,1 +1,0 @@
-# Insights-of-Amazon-Sales
